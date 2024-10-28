@@ -1,0 +1,1 @@
+# Rishabh-Mishra-Derivatives-Analyst-2Cents-Capital
